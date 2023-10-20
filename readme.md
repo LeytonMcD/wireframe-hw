@@ -15,11 +15,6 @@ There are plenty yof outdoor activities that can be done all year round as oppos
 
 
 
-
-
-
-
-
 ![Images depecting warm weather](img/pexels-amit-shubinsky-16403289.jpg) 
 
 ![Images depecting warm weather](img/pexels-arti-agarwal-2880741.jpg) 
