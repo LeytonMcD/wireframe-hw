@@ -18,14 +18,6 @@ There are plenty yof outdoor activities that can be done all year round as oppos
 
 
 
-
-There are plenty yof outdoor activities that can be done all year round as opposed to just being reserved for summer. Activities such as:
-1. Swimming 
-2. Having picnics
-3. Playing outdoor sports
-4. Hiking
-
-
 ![Images depecting warm weather](img/pexels-arti-agarwal-2880741.jpg) 
 
 ![Images depecting warm weather](img/pexels-tellez-erik-12956666.jpg) 
